@@ -1,1 +1,1 @@
-# Motivatie beweegt. Start met gemotiveerde patiënten.
+# Motivation moves. Start with motivated patiënts.
