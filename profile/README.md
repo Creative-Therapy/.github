@@ -1,1 +1,1 @@
-# Motivation moves. Start with motivated patiënts.
+# Motivation moves. Start with motivated patients.
